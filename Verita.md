@@ -49,7 +49,7 @@ Sin embargo nadie sabía lo que les esperaba.
 
 La muerte contenta está
 
-y brinca de la emoción
+y brincando de la emoción
 
 porque el doctor del Río 
 
@@ -61,7 +61,7 @@ le mandó.
 
 Así, que no olvides hacer tu tarea, 
 
-porque ya sabes lo que te espera.
+porque ya sabes la que te espera.
 
  <img src="https://k31.kn3.net/taringa/1/4/7/1/4/0/8/inti1427/E99.gif?9075" / width = 20%>
 
